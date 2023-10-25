@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vypii
+- 👀 I’m interested in politics
+- 🌱 I’m currently learning sociology
+- 💞️ I’m looking to collaborate on Russian Federation Government
+- 📫 How to reach me: doesn't matter
